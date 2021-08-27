@@ -1,2 +1,2 @@
-# imFOREVER123.github.io
+# forevergame.ga
 个人网站
